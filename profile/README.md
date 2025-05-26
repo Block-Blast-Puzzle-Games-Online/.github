@@ -4,6 +4,8 @@
 
 **Block Blast Online** is an **epic, brain-twisting puzzle game** that combines **classic block-dropping mechanics** with **modern speed and style**. Whether you're a casual player or a hardcore strategist, this game will test your reflexes and creativity in a **hyper-addictive** experience.
 
+## <a href="https://1kb.link/DvIVlJ">👉 Click To Play Block Blast Unblocked 👈</a>
+
 ---
 
 ### 🚀 Key Features That Make It Stand Out
